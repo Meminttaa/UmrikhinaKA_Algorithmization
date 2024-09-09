@@ -1,7 +1,7 @@
 # UmrikhinaKA_Algorithmization
 [ДО ГРАВИТИ ФОЛЗ ДОЕДУ??????????7](https://docs.google.com/document/d/1Wm692xckDH6HIZDWMbPNdYNzE1qucnwvJcCaDseOTTc/edit?usp=drivesdk)
 
-| Я | Стэн | И я был не прав|
+| Я | Стэн | И я был не пав|
 |-|:-:|:-:|
 | Танцую теперь | Как | Дурак |
 
