@@ -4,5 +4,5 @@ https://docs.google.com/document/d/1Wm692xckDH6HIZDWMbPNdYNzE1qucnwvJcCaDseOTTc/
 больше текста
 
 | Я | Емеля | Ребята |
-|-|::|-:|
+|-|:-:|-:|
 | Я | На | ПЕЧКЕ |
