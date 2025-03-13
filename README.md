@@ -1,6 +1,8 @@
 # UmrikhinaKA_Algorithmization
 [ДО ГРАВИТИ ФОЛЗ ДОЕДУ??????????7](https://drive.google.com/drive/folders/17MdcGtcWmHpVuH6bTIGV0k71kHTijZRh?usp=drive_link)
+
 [алгоритмизация и новелла](https://docs.google.com/document/d/1Wm692xckDH6HIZDWMbPNdYNzE1qucnwvJcCaDseOTTc/edit?usp=drive_link)
+
 нет только до слободы (кивипупс)
 
 | Я | Стэн | И я был не прав|
